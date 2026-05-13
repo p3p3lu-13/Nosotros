@@ -1,3 +1,3 @@
 # Nosotros
-Repositorio compartido (Abdellah, Alba, Pepelu)
-pepelu jefe de puta madre
+Repositorio compartido (Abdellah, Alba, Pepelu(jefe de puta madre))
+
